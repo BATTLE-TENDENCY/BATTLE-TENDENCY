@@ -1,7 +1,7 @@
 
 
 
-![](https://file.garden/aVJ-8_Qn93xoMxFi/Nowy%20projekt%20(56).png)
+![](https://file.garden/aVJ-8_Qn93xoMxFi/wuu)
 <p align="center"
   
 Jayro 21 HeHim
