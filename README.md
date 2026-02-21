@@ -4,9 +4,7 @@
 [rentry](https://rentry.co/ventoaureo)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://abbacchio.atabook.org/)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [darling](https://rentry.co/fururize)‎
  <p align="center"
 
-
-https://github.com/user-attachments/assets/e6acc91e-1cca-4a0e-99ab-f425c43ec8f1
-
+  https://github.com/user-attachments/assets/b0ce575b-b826-4d70-94da-fa42aef786b6
 
 <p align="center"
 
